@@ -7,4 +7,4 @@ Olá, meu nome é Luiz Philipe.
 ✔Encaro todo desafio como uma grande oportunidade para desenvolver ainda mais meus conhecimentos e sempre conquisto resultados positivos em relação ao conhecimento adquirido e à realização sucedida.
 
 E-mail: philipeduarte001@gmail.com
-Tel: (21) 9_99000-5670
+
